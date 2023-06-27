@@ -1,1 +1,1 @@
-# Pete-Thinkful3
+# Pete-Thinkful3 autobiography about Pete Thinkful
